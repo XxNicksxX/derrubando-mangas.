@@ -1,1 +1,1 @@
-# derrubando-mangas.
+# derrubando-mangas
